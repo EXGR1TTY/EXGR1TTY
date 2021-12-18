@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @EXGR1TTY
+- 👀 I’m interested in coding Unity
+- 📫 How to reach me: exgamerrrr@gmail.com
